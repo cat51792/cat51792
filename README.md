@@ -1,1 +1,1 @@
-Student who created a Github for a class.
+i like the color lavender if you couldn't tell.
